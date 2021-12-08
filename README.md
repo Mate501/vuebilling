@@ -1,4 +1,4 @@
-# [Név]
+# Juráncsik Máté
 
 ## Hogyan kezdj neki?
 
